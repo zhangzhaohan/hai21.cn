@@ -15,3 +15,6 @@ https://jieping.hai21.cn
 
 ## 图片批量合并PDF工具
 https://imgtopdf.hai21.cn
+
+## 免费图片壁纸图库下载
+https://pic.du21.cc
