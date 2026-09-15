@@ -18,3 +18,9 @@ https://imgtopdf.hai21.cn
 
 ## 免费图片壁纸图库下载
 https://pic.du21.cc
+
+## 怎么查询开户行
+https://bank.hai21.cn
+
+## 怎么查询行号
+https://khh.du21.com.cn
